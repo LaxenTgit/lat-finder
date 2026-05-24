@@ -1,4 +1,4 @@
-Zaten İngilizce kanka, direkt al:
+created by : latent
 
 ---
 
